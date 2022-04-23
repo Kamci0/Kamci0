@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kamci0
+- 👀 I’m interested in playing League
+- 🌱 I’m currently learning how to do it
+- 📫 How to reach me don't
