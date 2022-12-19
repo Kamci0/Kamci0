@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Kamci0
-- 👀 I’m interested in playing League
-- 🌱 I’m currently learning how to do it
+-  I’m Sad
+-  I would really use a hug right now
 - 📫 How to reach me don't
